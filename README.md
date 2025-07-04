@@ -27,4 +27,4 @@
 我们不仅仅是一个观影平台，更是一个分享与交流的社区。您可以在影片下方发表评论，分享观影心得，与其他同好交流。我们的智能推荐系统会根据您的观影历史和偏好，为您量身定制专属的影片推荐，帮助您发现更多未知的精彩。我们期待与您一同，解锁日本AV的无限魅力。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dtttn20250704/000025）</span>
